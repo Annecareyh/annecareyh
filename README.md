@@ -1,2 +1,3 @@
-Reed College Student
+Reed College Senior Biology Major
+annecareyh@gmail.com
 
